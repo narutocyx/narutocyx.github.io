@@ -1,7 +1,7 @@
 # Level Up by Falcon
 
-Be brave
+Be Brave
 
 Be Passion
 
-Be patient
+Be Patient
