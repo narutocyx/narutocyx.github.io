@@ -1,7 +1,3 @@
 # Level Up by Falcon
 
-Be Brave
-
-Be Passion
-
-Be Patient
+踏平坎坷成大道，斗罢艰险又出发
